@@ -1,1 +1,0 @@
-# nullyeti.githubpages.io
